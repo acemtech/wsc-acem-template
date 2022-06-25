@@ -1,6 +1,6 @@
 ## Scientific and Cultural day of the comorian student in Morocco
 
-**The event didn't happened dute to the COVID-19 pandemics**
+**The event didn't happened dute to the COVID-19 pandemics, but it's for sure happened from 2022, [click Here](http://acemtech.org/wsc-marrakech-2022/)**
 
 ### History
 
